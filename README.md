@@ -1,0 +1,1 @@
+# admob-privecy-policy
